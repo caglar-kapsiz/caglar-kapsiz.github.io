@@ -1,1 +1,0 @@
-# caglar-kapsiz.github.io
